@@ -9,7 +9,7 @@ Celebrities in Youtube Thumbnail:
  - Mia Khalifa
  - Mr Beast
  - Selena Gomez
- - Taylor Swift',
+ - Taylor Swift
 
 
 
